@@ -19,8 +19,6 @@ He clumsily walked back to his desk and sat down. He stared one more time at an 
 
 TAKE A RISK YOU PATHETIC LOSER
 
-[How the AI did it (1)](https://www.notion.so/How-the-AI-did-it-1-169cd662ddb8804395cbd42303413e25?pvs=21)
-
 Frenkel collapsed on his desk and lost consciousness.
 
 "Frenkel.. Frenkel, wake up. For Pete's sake you need to start sleeping in a bed."
