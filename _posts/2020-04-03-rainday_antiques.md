@@ -1,6 +1,6 @@
 ---
 title: "Rainday Antiques"
-date: 2024-04-03
+date: 2020-04-03
 ---
 
 > I couldn’t sleep one night and used Headspace’s guided meditation of Rainday Antiques, so that’s the inspiration for this story.
