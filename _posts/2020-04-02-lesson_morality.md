@@ -1,6 +1,6 @@
 ---
 title: "A lesson in morality"
-date: 2024-04-02
+date: 2020-04-02
 ---
 
 “They are onto us, sir! They outnumber us ten to one. There is no way that we will make it by running away.”
